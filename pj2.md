@@ -10,3 +10,4 @@ Enquanto a gente seguia pelas trilhas de areia colorida e coqueiros que pareciam
 ## P4
 Depois de tanta maluquice, paramos perto de um lago que brilhava como se tivesse estrelas dentro. Um grupo de flamingos músicos começou a tocar uma canção animada com guitarras feitas de bambu. O tatu me entregou um sorvete que mudava de sabor a segundo, e um sorriso surgiu em meu rosto sem que eu percebesse. Naquele momento, percebi que a Ilha Maluca era mais do que um lugar estranho — era um lugar onde a imaginação virava realidade. E enquanto o sol se punha em tons de azul e roxo, senti que aquela viagem ia ficar
 
+
